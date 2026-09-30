@@ -1,1 +1,1 @@
-# BOZ213d01u01-Furkan-G-ven
+# BOZ213d01u01-Furkan-Güven
